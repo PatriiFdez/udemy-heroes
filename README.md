@@ -14,3 +14,7 @@ Un **gran poder** requiere una _gran_ *responsabilidad*
 3. Item
   * Subitem
   * Subitem
+
+![Batman](https://media.comicbook.com/2018/09/batman-butt-1134585-1280x0.jpeg)
+
+[Ir a la imagen](https://media.comicbook.com/2018/09/batman-butt-1134585-1280x0.jpeg)
